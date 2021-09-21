@@ -16,7 +16,7 @@
 - 👯 I’m looking to collaborate on an better world;
 - 🤔 I’m looking for networking;
 - 💬 Ask me about anything;
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/ricardo-rodrigues-b0b71262/)
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/ricardocrod/)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: "Expect the unexpected"
 
